@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=AutisticDetective&color=blue&style=plastic&label=Audience)
+![](https://komarev.com/ghpvc/?username=AutisticDetective&color=blue&style=plastic&label=(๑>◡<๑))
 
 im lazy to clean the outline plez forgive
 
