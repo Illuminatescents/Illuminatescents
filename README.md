@@ -2,8 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=AutisticDetective&color=blue&style=plastic&label=(๑>◡<๑))
 
-im lazy to clean the outline plez forgive
+im never drawing again for ages wtf... 10 HOURS ON ONE CANVA BRO.
 
- <img src="https://github.com/user-attachments/assets/0b9fc74b-334f-4bd4-973d-e9aeebf2dc1a" alt="Description" width="500">
+ <img src="https://github.com/user-attachments/assets/f2332e99-af14-4fc2-9914-4fbfcc2f2108" alt="Description" width="500">
  
 </div>
