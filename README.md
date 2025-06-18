@@ -2,8 +2,12 @@
 
 ![](https://komarev.com/ghpvc/?username=AutisticDetective&color=blue&style=plastic&label=(๑>◡<๑))
 
-im never drawing again for ages wtf... 10 HOURS ON ONE CANVA BRO.
+i love them both, i love the game (not the bad ending tho :( that hurts) 
 
- <img src="https://github.com/user-attachments/assets/f2332e99-af14-4fc2-9914-4fbfcc2f2108" alt="Description" width="500">
+ <img src="https://github.com/user-attachments/assets/282fafdc-fed1-4414-9ab9-a06e3a2c5c1b" alt="Description" width="500">
  
 </div>
+
+
+
+
