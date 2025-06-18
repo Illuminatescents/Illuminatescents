@@ -4,10 +4,6 @@
 
 i love them both, i love the game (not the bad ending tho :( that hurts) 
 
- <img src="https://github.com/user-attachments/assets/282fafdc-fed1-4414-9ab9-a06e3a2c5c1b" alt="Description" width="500">
- 
+https://github.com/user-attachments/assets/2bc48a4a-c8e8-4c69-8611-4e8184ee567d
+
 </div>
-
-
-
-
