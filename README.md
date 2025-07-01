@@ -2,8 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=AutisticDetective&color=blue&style=plastic&label=(๑>◡<๑))
 
-man im still waiting for part 2
+dont ask whats with this idk myself
 
-https://github.com/user-attachments/assets/93c62c7f-2518-42df-8c4b-f6653b7ddec3
+ <img src="https://github.com/user-attachments/assets/9c3790f5-891c-44b5-845d-f950c22644a5" alt="Description" width="700">
 
 </div>
